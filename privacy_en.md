@@ -1,6 +1,6 @@
 # Privacy Policy
 
-**Hello Baby (the "App")**
+**Hello Baby! (the "App")**
 
 Last Updated: 2025-09-13
 
